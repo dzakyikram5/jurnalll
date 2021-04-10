@@ -1,0 +1,5 @@
+# jurnalll
+jd
+hkbkjbjkbjkbjkbjkbkbjb
+vhbhvhvhvkkvkhvhkvkhvk
+gvgvgjvjv
